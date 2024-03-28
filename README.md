@@ -1,1 +1,1 @@
-Www.lenovo.jumpy.co
+Www.lenovo.jumpy.com
